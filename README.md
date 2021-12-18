@@ -2,10 +2,9 @@
 -My skins
 
 
- # -_vaxei_different_color.]
+ # [-_vaxei_different_color.](https://drive.google.com/file/d/1RwjNwx4_qG6vnA5R6BYrvc2JaFKmedF0/view?usp=sharing)
  ![screenshot057](https://user-images.githubusercontent.com/96342426/146644552-d988a926-e1a8-44cd-8059-8f36d2284438.jpg)
  
-  ⬆(https://drive.google.com/file/d/1RwjNwx4_qG6vnA5R6BYrvc2JaFKmedF0/view?usp=sharing)⬆
 
 # [- colorbog(Woohoo Edition)](https://mega.nz/file/YeY2iRiJ#HAa1LmI1PI6fXyd-BoyLYYMJZD7dgnvVRdLYfvIi-cE) 
 ![![screenshot055](https://user-images.githubusercontent.com/96342426/146645890-acd22bfe-cff8-47a3-ab06-8f49862f65ff.jpg)
@@ -28,3 +27,12 @@
 
 # [- boop -](https://mega.nz/file/Fb5kGSZT#DhQ6vXx1L-0ndf6sr4yoNwE6kwnvjDA1PgK4Ev5GkLs)
 ![](https://osu.ppy.sh/ss/14733957/6cce)
+
+# [Rafis 2018-03-26 HDDT](https://mega.nz/folder/0YNzwQpT#k3R54UcnHxK_xSPWg_pI8w)
+![](dps)
+
+# [Rafis 2017-08-10](https://mega.nz/file/sqBBQAyS#V2FWdRXGOqDzc0j5fhRgZhf0s8LVJiXvQH6zbLuiibE)
+![](dps)
+
+# [Yugen](https://mega.nz/#!t352wSpT!K4airerwGGSxCIzsZ0mA13qUCwfHWvP4gbl81N2x6IQ)
+!(dps)
