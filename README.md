@@ -10,4 +10,4 @@
 </div>
 
 # [- colorbog(Woohoo Edition)](https://mega.nz/file/YeY2iRiJ#HAa1LmI1PI6fXyd-BoyLYYMJZD7dgnvVRdLYfvIi-cE) 
-![](https://osu.ppy.sh/ss/16187051/4633)
+![]
