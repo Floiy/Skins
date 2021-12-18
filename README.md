@@ -2,10 +2,9 @@
 -My skins
 
 
-   -_vaxei_different_color
+ #  -_vaxei_different_color(https://drive.google.com/file/d/1RwjNwx4_qG6vnA5R6BYrvc2JaFKmedF0/view?usp=sharing
   ![screenshot057](https://user-images.githubusercontent.com/96342426/146644552-d988a926-e1a8-44cd-8059-8f36d2284438.jpg)
-
- ⬆ https://drive.google.com/drive/folders/1GULzkMGbH16tEWO59P1sfHLsWQo2UABi?usp=sharing ⬆
+ ]
   
 </div>
 
